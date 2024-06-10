@@ -6,7 +6,7 @@
 
 # Hi! I'm Erik :3
 
-###### Schizo · BSD Enjoyer · Gentoo. TempleOS 
+###### BSD Enjoyer · Gentoo. TempleOS 
 </div>
 
 

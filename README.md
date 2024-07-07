@@ -4,7 +4,7 @@
 
 [![Fuwa... Fuwa... Pure Pure... Miracle!](/img/fuwa.gif)](https://x64x2.neocities.org)
 
-# Hi! I'm Erik :3
+# 甜豆酱 :3
 
 ###### BSD Enjoyer · Gentoo. TempleOS 
 </div>
